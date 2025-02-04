@@ -8,15 +8,106 @@
 ---------------------
    *• fandoms !*
 
-   - tadaa! im in sooo many fandoms but my top three are. . .
+   - tadaa! im in sooo many fandoms so cute ur in for a ride !
 
-   **Bfdi ( battle for dream island )**
 
-   **Haikyuu!**
+   ***Anime.*** 
+   
+   -Haikyuu
+   
+   -HunterxHunter
+   
+   -Death note
+   
+   -Bungo Stray Dogs
+   
+   -Blue lock
+   
+   -One piece
+   
+   -Sasaki to Miyano
+   
+   -Natsume's Book Of Friends
+   
+   -Madoka Magica
+   
+   -Howl's Moving Castle
+   
+   -Ron Komonohashi's Detective Deductions
+   
+   -Spirited Away
+   
+   -Ponyo
+   
+   -Angel beats
+   
+   -Given
+   
+   -Nichijou
+   
+   -Heaven's Official Blessing
+   
+   -Pokemon
+   
+   -Kaito Joker
+   
+   -Detective Conan
+   
+   -Jujutsu Kaisen
 
-   **Pokemon**
 
-   idk anymore im in many fandoms so you here are in for a ride!
+  ***TV shows.***
+  -Hannibal
+  
+  -The Amazing World of Gumball
+  
+  -Battle For Dream Island ( personal fav )
+  
+  -Alien stage
+  
+  -Scream
+
+
+  ***Music artists.***
+  -Laufey
+  
+  -Ciggarettes after Sex
+  
+  -Beabadoobee
+  
+  -TV girl
+  
+  -Masdo ( my conuntry )
+  
+  -Mitski
+  
+  -Alex G
+  
+  -Putri dahlia
+  
+  -Wave to Earth
+
+
+  ***Books.***
+
+  -Yotsuba!
+  
+  -Fnaf
+  
+  -Diary Of A Wimpy Kid
+  
+  -Dork Diaries
+  
+  -No Longer Human (fucking unreal)
+  
+  -When I Was A Kid
+  
+  -Prince series
+
+  -Dangerously Yours (Not a book but i read it on wattapad lol)
+
+  
+   
 
 
    -----------------
@@ -25,18 +116,29 @@
 
    im always welcomed to have someone int w me or just a cuddle and a hug, you can also whisp, no big deal! i dont bite hehe!
 
-   but pls dni if you are : pdfiles, proshippers, rctas, homophobes, transphobes, or js straight up offensive. i do take jokes and can hit u back w a friendly insult everyday but if ur js straight up srs, i hve no faith in humanity. and don't int if you think ur problematic! i would js straightforwardly say it to you!
+   but pls dni if you are : pdfiles, proshippers, rctas, homophobes, transphobes, or js straight up offensive. i do take jokes and can hit u back w a friendly insult everyday but if ur js straight up srs, i hve no faith in humanity. and don't int if you think ur problematic! i would js straightforwardly say tht to you!
 
    -------------
 
-   you can talk w me on: . . .
+   *You can find/talk to me on: . . .
 
-   - discord !
-   - pony town !
-   - roblox !
-   - strawpage ! ( asking questions and all )
-   - 
+   -discord
+   
+   -pony town
+   
+   -roblox (Skye_High2379)
+   
+   -strawpage (asking)
+   
+   -guestbook (asking)
 
+   -------------
+
+   *Welp, thats all! cya in m strawpage!*
+
+   <img src="https://gifdb.com/images/high/bfb-x-and-two-shocked-of-coming-van-jw33rzd0ek5smyxg.gif" alt="Bfb X And Two Shocked Of Coming Van GIF"/>![image](https://github.com/user-attachments/assets/998163c3-640b-4aaf-b15f-733ea0cfc405)
+
+                                                                                 
    
 
    
