@@ -1,4 +1,4 @@
-$${\color{lightblue}SKIBIDI \space TOILET \space just \space  kidding, \space HIII! }$$
+$${\color{lightblue}SKIBIDI \space TOILET \space just \space  kidding, \space HIII }$$
 
   
 
