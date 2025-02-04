@@ -57,6 +57,7 @@
 
 
   ***TV shows.***
+ 
   -Hannibal
   
   -The Amazing World of Gumball
@@ -69,6 +70,7 @@
 
 
   ***Music artists.***
+ 
   -Laufey
   
   -Ciggarettes after Sex
