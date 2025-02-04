@@ -1,4 +1,4 @@
-## <img src="https://static.wikia.nocookie.net/battlefordreamisland/images/b/b4/Four_sweeps_X_off-screen.gif/revision/latest?cb=20201016032955"/>![Uploading image.png…]()
+## <img src="https://static.wikia.nocookie.net/battlefordreamisland/images/b/b4/Four_sweeps_X_off-screen.gif/revision/latest?cb=20201016032955"/>!
 
 
 <!--
