@@ -1,4 +1,6 @@
 $${\color{lightblue}SKIBIDI \space TOILET. \space just \space  kidding, \space HIII }$$
+![x-bfb-x-bfdi](https://github.com/user-attachments/assets/b93abef3-32e8-4e0e-8747-2a83d737a9fa)
+
 
   
 
