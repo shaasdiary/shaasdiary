@@ -136,9 +136,9 @@
 
    -------------
 
-   *Welp, thats all! cya in m strawpage!*
+   *Welp, thats all! cya in my strawpage!*
 
-   <img src="https://gifdb.com/images/high/bfb-x-and-two-shocked-of-coming-van-jw33rzd0ek5smyxg.gif" alt="Bfb X And Two Shocked Of Coming Van GIF"/>!
+   <img src="https://gifdb.com/images/high/bfb-x-and-two-shocked-of-coming-van-jw33rzd0ek5smyxg.gif" alt="Bfb X And Two Shocked Of Coming Van GIF"/>
 
                                                                                  
    
