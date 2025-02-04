@@ -108,9 +108,25 @@
 
   -Dangerously Yours (Not a book but i read it on wattapad lol)
 
-  
-   
 
+  ***Kins.***
+
+  -Four ( BFDI )
+
+  -Atsumu Miya ( Haikyuu )
+
+  -Suguru Geto ( Jjk )
+
+  -Greg Heffley ( DOAWK )
+
+  -Till ( Alnst )
+
+  -Howl ( HMC )
+
+  -Natsume Takashi ( NBOF )
+  
+
+  
 
    -----------------
 
