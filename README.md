@@ -1,5 +1,12 @@
-$${\color{lightblue}SKIBIDI \space TOILET. \space just \space  kidding, \space HIII }$$
-![x-bfb-x-bfdi](https://github.com/user-attachments/assets/b93abef3-32e8-4e0e-8747-2a83d737a9fa)
+   $${\color{lightblue}SKIBIDI \space TOILET. \space just \space  kidding, \space HIII }$$
+
+-----------------------
+   ![x-bfb-x-bfdi](https://github.com/user-attachments/assets/150fa693-6bc1-467f-b1fc-0d71fb6a06e8)
+
+   **hii! my name is shaa! quick intro! you could see my 
+
+
+
 
 
   
