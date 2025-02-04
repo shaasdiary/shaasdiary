@@ -122,7 +122,7 @@
 
    -------------
 
-   *You can find/talk to me on: . . .
+   *You can find/talk to me on: . . .*
 
    -discord
    
