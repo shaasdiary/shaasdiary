@@ -1,4 +1,4 @@
-5   $${\color{lightblue}SKIBIDI \space TOILET. \space just \space  kidding, \space HIII }$$
+$${\color{lightblue}SKIBIDI \space TOILET. \space just \space  kidding, \space HIII }$$
 
 -----------------------
    ![x-bfb-x-bfdi](https://github.com/user-attachments/assets/150fa693-6bc1-467f-b1fc-0d71fb6a06e8)
@@ -54,6 +54,8 @@
    -Detective Conan
    
    -Jujutsu Kaisen
+
+   -Evangelion
 
 
   ***TV shows.***
