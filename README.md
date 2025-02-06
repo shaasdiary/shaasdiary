@@ -8,7 +8,7 @@ $${\color{lightblue}SKIBIDI \space TOILET. \space just \space  kidding, \space H
 ---------------------
    *• fandoms !*
 
-   - tadaa! im in sooo many fandoms so cute ur in for a ride !
+   - tadaa! im in sooo many fandoms so ur in for a ride !
 
 
    ***Anime.*** 
