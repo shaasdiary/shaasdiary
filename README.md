@@ -1,11 +1,11 @@
 $${\color{yellow}SKIBIDI \space TOILET. \space just \space  kidding, \space HIII }$$
 
------------------------
+------------------ ★ ⌗
    ![x-bfb-x-bfdi](https://github.com/user-attachments/assets/150fa693-6bc1-467f-b1fc-0d71fb6a06e8)
 
-   **hii! my name is shaa! quick intro! you could see my strawpage ( link in bio ) and yeah! I'm a minor so uh pdfiles pls don't try to do freaky deaky stuff w me and I'm from southeast asia! Malaysia woohoo!!**
+   **hii! my name is shaa or codinn! quick intro! you could see my strawpage, more info there but uhh, im a minor, c+h and int freely idm and go off im crazy asf.**
 
-rmking this bc it's messy :(
+
                                                                               
    
 
