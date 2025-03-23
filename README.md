@@ -1,4 +1,18 @@
-wip
+**uhh how do i explain this . . .**
+
+< ^ > 
+
+**wsg yall might know me im shaa, uh for the ppl who are curious abt the hiatus stuff, its bc of uh my assignments and i dont know if i will come back but maybe? or not.**
+
+_ + _
+
+**Yes im a minor, living in southeast asia. my kins are :; four , animatic , knife , happy star , kageyama , cherry and yeah. i wont be changing this for a while and uh only my atabook is available, my rentry, sp, carrd is not. no explaination needed. uh extra info : im a demi girl uh intersex too. i have a bad case of hypersexuality so uh i wont be too close w certain ppl and thats,, all.**
+
+
+
+
+
+
 
 
                                                                               
