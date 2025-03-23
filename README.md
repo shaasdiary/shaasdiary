@@ -1,3 +1,4 @@
+
 **uhh how do i explain this . . .**
 
 < ^ > 
@@ -8,7 +9,7 @@ _ + _
 
 **Yes im a minor, living in southeast asia. my kins are :; four , animatic , knife , happy star , kageyama , cherry and yeah. i wont be changing this for a while and uh only my atabook is available, my rentry, sp, carrd is not. no explaination needed. uh extra info : im a demi girl uh intersex too. i have a bad case of hypersexuality so uh i wont be too close w certain ppl and thats,, all.**
 
-
+![Screenshot 2025-03-23 6 17 15 PM](https://github.com/user-attachments/assets/624aee0a-c355-4607-a869-e41a91e54083)
 
 
 
