@@ -1,15 +1,14 @@
 
-**uhh how do i explain this . . .**
+**hellos me is bavk agai . . .**
 
-< ^ > 
+*< ^ >* 
 
-**wsg yall might know me im shaa, uh for the ppl who are curious abt the hiatus stuff, its bc of uh my assignments and i dont know if i will come back but maybe? or not.**
+**wsg yall might know me im shaa, the uh anima kin or anything. so uh me is back, im not online pt though but i'll tri**
 
 _ + _
 
-**Yes im a minor, living in southeast asia. my kins are :; four , animatic , knife , happy star , kageyama , cherry and yeah. i wont be changing this for a while and uh only my atabook is available, my rentry, sp, carrd is not. no explaination needed. uh extra info : im a demi girl uh intersex too. i have a bad case of hypersexuality so uh i wont be too close w certain ppl and thats,, all.**
+**Yes im a minor, living in southeast asia. im multifandom, uhh kins are : animatic ( my biggest. ) , four , knife , asuka , bebe or nagisa , cherry , kageyama and uhh more etc..extra infos : im intersex which ppl might uh think im a theytem irl and uh hypersexual which is uh sexual attraction to some1 close to yous and yeah. i feel like im online at pt at sometimes but uh most like no. none of my intros are here now bc of redisign yes. .**
 
-![Screenshot 2025-03-23 6 17 15 PM](https://github.com/user-attachments/assets/624aee0a-c355-4607-a869-e41a91e54083)
 
 
 
